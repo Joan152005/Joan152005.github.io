@@ -1,1 +1,1 @@
-Hola soy Joan, vengo de SMX1 y me gusta la pizza.
+Hola soy Joan, vengo de SMX1 y vivo en Esparreguera.
